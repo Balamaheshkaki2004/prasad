@@ -1,2 +1,2 @@
 # teja
-i am mahesh from csm.
+i am mahesh from diet.
